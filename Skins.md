@@ -2,3 +2,6 @@
 
 # [VAristiajipo(edit)](https://drive.google.com/file/d/1gyzj9VSJla3aPPYhuP5aLmotxW6glrIY/view)
 ![](https://i.imgur.com/RugocGD.jpeg)
+
+# [Rafis 2018 wx](https://drive.google.com/file/d/18q_YwsnU-NqNDMK6AQ6J9j-AW4Zg62SB/view)
+![](https://i.imgur.com/h7JzkbJ.png)
