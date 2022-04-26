@@ -6,6 +6,9 @@
 # [VAristiajipo(edit)](https://drive.google.com/file/d/1gyzj9VSJla3aPPYhuP5aLmotxW6glrIY/view)
 ![](https://i.imgur.com/RugocGD.jpeg)
 
+# [MonkoVax](https://drive.google.com/file/d/1aeeUhKZv3vcDF5VABBuuN4h8jWeZku0b/view)
+![](https://i.imgur.com/hQqheqh.jpg)
+
 # [Rafis 2017-mathi](https://drive.google.com/file/d/1hb1m4XKV0sjIierJrDQWrluSLavidoup/view)
 ![](https://i.imgur.com/XxxnA7J.jpg)
 
