@@ -1,5 +1,8 @@
 # Jipoman's osu! main skins
 
+# [- Damstolefromkevin](https://drive.google.com/file/d/1Z34YjtKHoIzDkJMuNF9hQ9_Dns9Fc0Bt/view)
+![](https://i.imgur.com/OJxdwYa.jpg)
+
 # [_Shield](https://drive.google.com/file/d/14d-h3FmlFcz5suiS-OcYj5kBiu9m8rfF/view)
 ![](https://i.imgur.com/Uk9ut3G.jpeg)
 
