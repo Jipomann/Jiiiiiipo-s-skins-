@@ -1,5 +1,8 @@
 # Jipoman's osu! main skins
 
+# [milkteaism edit](https://drive.google.com/file/d/19rb_ZZXrhDUXOWIpoo51uJ4LNvfPLlw3/view)
+![](https://i.imgur.com/yZkVmOf.jpg)
+
 # [- Damstolefromkevin](https://drive.google.com/file/d/1Z34YjtKHoIzDkJMuNF9hQ9_Dns9Fc0Bt/view)
 ![](https://i.imgur.com/OJxdwYa.jpg)
 
