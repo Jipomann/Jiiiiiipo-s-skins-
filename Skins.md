@@ -3,6 +3,10 @@
 # [elojere jipo](https://drive.google.com/uc?id=103GUW7ky68BxYnGR2m_JwrZDlc6wI3Yy&export=download)
 ![](https://i.imgur.com/eb7DHHW.jpg)
 
+# [Aristia(Edit) jied](https://drive.google.com/uc?id=1uKZgF6HU6wVGNAHsK2TYNcQVk0d8s-2R&export=download)
+![screenshot083](https://user-images.githubusercontent.com/102329779/187502854-b20b3061-7cc1-4ba7-a33e-f1a425e5b171.jpg)
+
+
 # [- Damstolefromkevin](https://drive.google.com/uc?id=1Z34YjtKHoIzDkJMuNF9hQ9_Dns9Fc0Bt&export=download)
 ![](https://i.imgur.com/OJxdwYa.jpg)
 
