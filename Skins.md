@@ -1,5 +1,8 @@
 # Jipoman's osu! main skins
 
+# [elojere jipo](https://drive.google.com/uc?id=103GUW7ky68BxYnGR2m_JwrZDlc6wI3Yy&export=download)
+![](https://i.imgur.com/eb7DHHW.jpg)
+
 # [milkteaism edit](https://drive.google.com/file/d/19rb_ZZXrhDUXOWIpoo51uJ4LNvfPLlw3/view)
 ![](https://i.imgur.com/yZkVmOf.jpg)
 
