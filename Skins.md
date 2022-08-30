@@ -6,9 +6,6 @@
 # [Rafis 2017-mathi](https://drive.google.com/uc?id=1hb1m4XKV0sjIierJrDQWrluSLavidoup&export=download)
 ![](https://i.imgur.com/XxxnA7J.jpg)
 
-# [_Shield](https://drive.google.com/uc?id=14d-h3FmlFcz5suiS-OcYj5kBiu9m8rfF&export=download)
-![](https://i.imgur.com/Uk9ut3G.jpeg)
-
 # [- Damstolefromkevin](https://drive.google.com/uc?id=1Z34YjtKHoIzDkJMuNF9hQ9_Dns9Fc0Bt&export=download)
 ![](https://i.imgur.com/OJxdwYa.jpg)
 
