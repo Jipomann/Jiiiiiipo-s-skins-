@@ -1,4 +1,6 @@
 # Jipoman's osu! main skins
+# [BubbleSkin20-10-09](https://drive.google.com/uc?id=1EWEw9QVQTfzPUow7sOzMTO7aWeE2Jc5o&export=download)
+![](https://i.imgur.com/oifZnX1.jpg)
 
 # [elojere jipo](https://drive.google.com/uc?id=103GUW7ky68BxYnGR2m_JwrZDlc6wI3Yy&export=download)
 ![](https://i.imgur.com/8JQAsu0.jpg)
