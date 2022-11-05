@@ -1,4 +1,7 @@
 # Jipoman's osu! main skins
+# [Rafis but SZ st](https://cdn.discordapp.com/attachments/623969298469093427/1038268587829379123/Rafis_but_SZ_st.osk)
+![](https://i.imgur.com/PJoR8Ut.jpg)
+
 # [Rafis but SZ jp](https://drive.google.com/u/0/uc?id=1WRI3cQytFMb2gLqy9iNC4ioc208rMXR2&export=download)
 ![](https://i.imgur.com/GrmqDds.jpg)
 
