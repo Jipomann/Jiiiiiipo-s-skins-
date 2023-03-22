@@ -1,6 +1,9 @@
 # Jipoman's osu! main skins
 
-# [Rafis SZ tk (2023)](https://cdn.discordapp.com/attachments/892108331328634880/1078685153267826718/Rafis_SZ_tk.osk)
+# [Rafis SZ bn tk elo (2023)](https://mega.nz/file/he91GagC#AgGJ4BwLkv_Sonvan0O9U4yvQxj0zsopu-oZOYwJeTI)
+![](https://i.imgur.com/OZiKA1R.jpg)
+
+# [Rafis SZ tk (2023)](https://mega.nz/file/dfEDwAYQ#UBoCRjDwAZkqZbxiLp2Vb7486HNBWlyGTTRfO94OZ-U)
 ![](https://i.imgur.com/YUZ1eA9.jpg)
 
 # [Rafis SZ 2017 or (2023)](https://cdn.discordapp.com/attachments/892108331328634880/1046581245049585714/Rafis_2017_SZ_or.osk)
