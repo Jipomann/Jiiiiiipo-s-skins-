@@ -18,15 +18,15 @@
 # [Rafis SZ 2017 or 2 (2023)](https://mega.nz/file/UKdkHCIb#7S6ySDWxsN9dKzgdMBvQWN1qQxOpPwuFf3G1osVQyWc)
 ![](https://i.imgur.com/dCfCyMb.jpg)
 
-# [BubbleSkin20-10-09 (2022)](https://drive.google.com/uc?id=1EWEw9QVQTfzPUow7sOzMTO7aWeE2Jc5o&export=download)
+# [BubbleSkin20-10-09 (2022)](https://drive.google.com/file/d/1EWEw9QVQTfzPUow7sOzMTO7aWeE2Jc5o/view?usp=drive_link)
 ![](https://i.imgur.com/oifZnX1.jpg)
 
-# [Rafis 2017-mathi (2022)](https://drive.google.com/uc?id=1hb1m4XKV0sjIierJrDQWrluSLavidoup&export=download)
+# [Rafis 2017-mathi (2022)](https://drive.google.com/file/d/1hb1m4XKV0sjIierJrDQWrluSLavidoup/view?usp=drive_link)
 ![](https://i.imgur.com/XxxnA7J.jpg)
 
-# [Aristia(Edit) jied (2022)](https://drive.google.com/uc?id=1uKZgF6HU6wVGNAHsK2TYNcQVk0d8s-2R&export=download)
+# [Aristia(Edit) jied (2022)](https://drive.google.com/file/d/1uKZgF6HU6wVGNAHsK2TYNcQVk0d8s-2R/view?usp=drive_link)
 ![](https://i.imgur.com/i3R9rAV.jpg)
 
-# [VAristiajipo(edit) (2021)](https://drive.google.com/uc?id=1YYjzcRJNqaHdKGZrCeEDCaXudPd62cm9&export=download)
+# [VAristiajipo(edit) (2021)](https://drive.google.com/file/d/1YYjzcRJNqaHdKGZrCeEDCaXudPd62cm9/view?usp=drive_link)
 ![](https://i.imgur.com/VYpjOp5.jpg)
 
