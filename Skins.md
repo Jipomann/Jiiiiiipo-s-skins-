@@ -9,7 +9,7 @@
 # [Rafis SZ bn tk elo (2023)](https://drive.google.com/file/d/1XdIouBfKDj3t_ZHY8cafIOSgIx8QTz0w/view?usp=drive_link)
 ![](https://i.imgur.com/OZiKA1R.jpg)
 
-# [Aristia(Edit) rk pl (2023)](https://mega.nz/file/sfEigSTK#QKmghAchnVO-IWfLlkZHuiXI4G3uZ8r92xQo7p76Yyk)
+# [Aristia(Edit) rk pl (2023)](https://drive.google.com/file/d/1sfhT4EaKSyWpDR2rfagY_3jgLPrrW1xJ/view?usp=drive_link)
 ![](https://i.imgur.com/quDfnHh.jpg)
 
 # [Rafis SZ tk (2023)](https://mega.nz/file/dfEDwAYQ#UBoCRjDwAZkqZbxiLp2Vb7486HNBWlyGTTRfO94OZ-U)
