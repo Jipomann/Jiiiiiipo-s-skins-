@@ -15,7 +15,7 @@
 # [Rafis SZ tk (2023)](https://drive.google.com/file/d/1PRh71C20SVJglHzLXhkeTktnYQk90NkD/view?usp=drive_link)
 ![](https://i.imgur.com/YUZ1eA9.jpg)
 
-# [Rafis SZ 2017 or 2 (2023)](https://drive.google.com/file/d/1wjsT87iorxGO92N32Ny8Ox45snANdh7e/view?usp=drive_link)
+# [Rafis 2017 SZ or 2 (2023)](https://drive.google.com/file/d/1wjsT87iorxGO92N32Ny8Ox45snANdh7e/view?usp=drive_link)
 ![](https://i.imgur.com/dCfCyMb.jpg)
 
 # [BubbleSkin20-10-09 (2022)](https://drive.google.com/file/d/1EWEw9QVQTfzPUow7sOzMTO7aWeE2Jc5o/view?usp=drive_link)
